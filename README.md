@@ -1,1 +1,1 @@
-# InfiniteRdioPhilippines
+# InfiniteRadioPhilippines
