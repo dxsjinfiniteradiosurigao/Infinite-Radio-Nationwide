@@ -1,1 +1,1 @@
-# Infinite-Radio-Nationwide
+# InfiniteRdioPhilippines
